@@ -1,1 +1,1 @@
-Question for (FULLNAME)
+Quick inquiry for (FIRSTNAME) about scaling (BUSINESS)'s sales
