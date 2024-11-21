@@ -1,1 +1,1 @@
-Quick inquiry for (FIRSTNAME) about scaling (BUSINESS)'s sales
+Hey (FIRSTNAME) are you interested in scaling (BUSINESSNAME)’s sales?
