@@ -1,21 +1,17 @@
-Hi (FIRSTNAME), I hope you’re having a great day so far!
+Hi (FIRSTNAME), hope you’re having a great day.
 
-I’ve just taken a look at your website, it looks amazing! Are you also open to new methods of gaining online revenue?
+I just took a look at your website / offering and it’s really impressive. Are you looking for new ways to gain online revenue?
 
-We believe we could get upwards of €50-150k from new interested customers, every single month for your platform.
+Karmic can help you generate more than €50-150k from new customers every month for your platform.
 
-FYI, Karmic works on a 100% pay on results basis, so we only charge you for the customers that we successfully bring in, and our digital marketing specialists have worked with dozens of businesses such as yourselves attaining 5x ROI and up to even 12x ROI and higher using our methods.
+We work on a 100% pay-on-results basis, so we only charge you for the customers that we bring in. Our digital marketing experts have worked with dozens of businesses like yours, using our methods to attain 5x, 8x, and even up to 12x ROI, generating millions of $.
 
-I recorded a short ~90s video to explain a bit about why I’m asking and the offer in more detail, if you want to check it out below…
+How about a quick call this week so I can tell you more?
+
+Take a look at the short ~90s video I recorded for you where I go into more detail. There’s a button at the end of it to schedule a call. 
 
 (LOOMURL)
 
-I would love the opportunity to learn more about your business, challenges, and to learn how Karmic can help to achieve your goals.
+Looking forward to hearing back,
 
-Would you be interested in having a call this week so we can discuss?
-
-Thanks,
-
-(SENDER)
-
-p.s. - when I say pay on results, I really mean it! No performance = no money out of your pocket.
+(EMAIL SENDER)
