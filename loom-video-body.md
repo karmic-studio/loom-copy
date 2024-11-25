@@ -1,7 +1,7 @@
-Hi, I’m Luke. I was just checking out your website and I really liked what I saw so.. I wanted to connect with you directly. So, I have something to share I really believe will help in driving growth for your online business.
+Hi, I’m Luke. I was just checking out your website and I liked what I saw so.. I wanted to reach out to you directly. 
 
-Bottom line?.. we've figured out exactly how to generate consistent customers for e-commerce platforms to the point that we actually guarantee return and investment. By the way, COMPLETELY on a pay on results basis.
+Essentially... We help to generate consistent customers for e-commerce platforms to the point that we’re actually guaranteeing return and investment. By the way, that's COMPLETELY on a pay-on-performance basis.
 
-So.. I have 9 years of personal experience in the top tech companies in Europe. Most recently, Tech Lead of the Growth team at the largest trading exchange in the Netherlands, building software which generated millions $$$’s in value. And also, our digital marketing team has combined decades of experience in generating millions of dollars in revenue for clients across different industries. We KNOW what it takes to drive significant results.
+So..: I have 9 years of personal experience in the top EU tech companies.. Most recently, leading the Growth team at the largest trading exchange in the Netherlands, And Importantly, Our digital marketing team have already generated millions of dollars in revenue for clients across different industries, so without doubt we KNOW what it takes to create significant results.
 
-At the end of this video, you’ll see a red button to schedule a meeting. Click it, and I’ll demo everything for you.
+If that interest you? At the end of this video, you’ll see a red button to schedule a meeting. Just click that, and I’ll demo everything for you.
