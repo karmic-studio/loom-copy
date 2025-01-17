@@ -1,13 +1,17 @@
-Hi (FIRSTNAME), I hope you’re having a great day!
+Hi {{firstName}},
 
-I just took a look at your website, and it’s great to see another innovative company thriving in such a competitive industry. I wonder, are you looking for new ways to increase your online revenue in 2025?
+I’m sure you’re busy and get a few of these, so I’ll just cut to the chase.
 
-Karmic, being 100% pay-on-results basis, works exclusively with health, wellness, and cosmetics businesses in your revenue range to generate an additional ~€50-150k+ for your platform. We have one of the best teams in the industry, consistently generating millions of dollars for businesses like yours, it's easy for us.
+Karmic is a health, cosmetics, and wellness industry expert, 100% pay-on-performance digital marketing agency, making hundreds of thousands $$$ monthly for our clients, we don’t mess around, and we would love to help you too if you need.
 
-We have some of the best digital marketers, who've helped numerous businesses like yours achieve substantial growth, attaining 5x, 8x, and even up to 12x ROI, resulting in millions of dollars in revenue.
+Like I said, pay on performance only, we get paid ONLY for the sales we generate for you.
 
-Just schedule a call with us, and I’ll share everything, including some of the outstanding results. You won’t be disappointed!
+We have an amazing team of 10+ year veterans, who worked with budgets of $5k - $400k monthly, and who can get results very quickly, and nor do we don’t lock you into anything, putting as much risk on ourselves as possible.
 
-Looking forward to hearing from you,
+Are you interested in a light conversation, to see if this works for both of us? Just book a short phone call here:
 
-(EMAIL SENDER)
+https://calendly.com/luke-karmic/discovery
+
+That’s all,
+
+Have a great day!
