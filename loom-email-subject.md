@@ -1,1 +1,1 @@
-Hey (FIRSTNAME) are you interested in scaling (BUSINESSNAME)’s sales?
+Hey (FIRSTNAME) quick question, how have you considered scaling your sales in 2025?

@@ -8,7 +8,7 @@ We work on a 100% pay-on-results basis, so we only charge you for the customers 
 
 How about a quick call this week so I can tell you more?
 
-Take a look at the short ~90s video I recorded for you where I go into more detail. There’s a button at the end of it to schedule a call. 
+Take a look at the short ~90s video I recorded for you where I go into more detail. There’s a button at the end of it to schedule a call.
 
 (LOOMURL)
 
